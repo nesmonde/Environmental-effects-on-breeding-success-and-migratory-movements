@@ -1,4 +1,4 @@
-# Environmental-effects-on-breeding-success-and-post-breeding-movements-in-Manx-shearwaters.
+# Environmental-effects-on-breeding-success-and-post-breeding-movements-in-Manx-shearwaters
 
 Environmental effects on migratory movement and breeding of Manx shearwaters: insights from ringing recoveries
 
